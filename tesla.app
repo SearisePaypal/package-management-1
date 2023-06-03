@@ -1,0 +1,1 @@
+Tesla, Inc. is an American multinational automotive and clean energy company headquartered in Austin, Texas. Tesla designs and manufactures electric vehicles,battery energy storage from home to grid-scale, solar panels and solar roof tiles, and related products and services
